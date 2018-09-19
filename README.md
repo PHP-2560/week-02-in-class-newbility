@@ -5,7 +5,7 @@ Have one person fill in the names of who is doing this:
 1. ______Runyu Hai_________________________
 2. ______Augustus Ge________________________
 3. ______Yan Zhao_______________________
-4. ______Chengzhao TU___________________
+4. ______Chengzhao Tu_________________
 
 # In-Class
 
